@@ -1,2 +1,1 @@
-i love coding
-i love me 
+am in love with coding 
